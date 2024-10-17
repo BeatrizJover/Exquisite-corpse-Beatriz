@@ -15,3 +15,7 @@ Beware of the dangers, but if you succeed, great rewards you will find. :stars:
 Or a Ring of Power <br>
 or cursed Aztec treasure<br>
 But perhaps you'll find a Shell of Power. That wouldn't be too bad.<br>:trophy:
+
+Maybe you'll even stumble upon an ancient vending machine that only dispenses wisdom—unless it’s out of stock. <br> 
+Just don’t press the “self-destruct” button; they were really into dramatic exits back then. <br> 
+And if you find a time-traveling chicken, well, don’t ask… just follow it.
