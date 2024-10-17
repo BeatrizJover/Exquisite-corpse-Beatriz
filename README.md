@@ -10,3 +10,7 @@ Do you want to know how all was back then? <br>
 Then, waste no second and go right away! <br>
 
 Beware of the dangers, but if you succeed, great rewards you will find.
+
+Or a Ring of Power <br>
+or cursed Aztec treasure<br>
+But perhaps you'll find a Shell of Power. That wouldn't be too bad.<br>
