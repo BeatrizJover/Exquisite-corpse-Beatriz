@@ -10,7 +10,7 @@ Everything is done just like it was hundreds of years ago. <br>
 Do you want to know how all was back then? <br>
 Then, waste no second and go right away! <br>
 
-Beware of the dangers, but if you succeed, great rewards you will find.:stars:
+Beware of the dangers, but if you succeed, great rewards you will find. :stars:
 
 Or a Ring of Power <br>
 or cursed Aztec treasure<br>
